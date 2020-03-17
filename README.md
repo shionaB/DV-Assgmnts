@@ -1,1 +1,1 @@
-Trials of minor works for familiarization and experience.
+Trials of small works for familiarization and experience.
